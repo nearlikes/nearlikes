@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @nearlikes
+- 👀 I’m interested in changing how people interact with brands
+- 📫 How to reach me ... nearlikes.com
